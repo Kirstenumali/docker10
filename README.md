@@ -1,1 +1,12 @@
 # docker10
+
+nsiufnioqwioqnoqwn
+
+
+
+
+
+
+
+
+
